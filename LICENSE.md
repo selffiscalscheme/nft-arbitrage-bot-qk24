@@ -1,4 +1,4 @@
-# 
+# new nft arbitrage bot | flip-strategies + arbitrage-opportunities is the best nft arbitrage bot, featuring flip-strategies and arbitrage-opportunities. Fast, smart, and optimized
 
 
 
